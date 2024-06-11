@@ -28,7 +28,6 @@
 - 💞️ I want to collaborate on open-source projects and startups in every field.
 - 📫 You can reach me 
 - Email = mayork2012@gmail.com
-- WhatsApp = +2348034089466
 - Linkedin = https://www.linkedin.com/in/akinsetekayode/
 
 <!---
